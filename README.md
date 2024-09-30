@@ -2,8 +2,8 @@
 
 ### 🚀STABLE OPERATION IS GUARANTEED
 
-### You can buy the script in Telegram, write: [@TON Drainer Support](https://t.me/GoldenDrainerSupport)
-
+### ・Purchase it online and get a 10% Discount: https://shoppy.gg/@KenzabyteBot 👍
+DM me from Telegram: https://t.me/tooolz25 if you are interested.🤝
 🚀 A unique project without analogues
 Golden TON Drainer is an innovative platform that has no analogues in the cryptosphere. Join and open access to the best opportunities!
 
